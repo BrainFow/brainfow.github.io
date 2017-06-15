@@ -9,3 +9,5 @@
 ### Мои контакты в соц.сетях
 
 Vk:https://vk.com/notfriee;FB:https://www.facebook.com/BraidedAce;На форуме LoLzTeam.net:https://lolzteam.net/members/128202/
+
+<image img="drapery/1.jpg"/>
